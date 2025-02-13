@@ -7,7 +7,7 @@ If you're an avid fan of Counter-Strike: Global Offensive and enjoy the thrill o
   <tr>
     <th>✅ Product</th>
     <th>Promo Code</th>
-    <th>Exculise Bonus</th>
+    <th>Exclusive Bonus</th>
   </tr>
   <tr>
     <td>➡️ CSGOPolygon Promo Code</td>
