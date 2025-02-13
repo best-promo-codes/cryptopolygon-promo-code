@@ -31,7 +31,7 @@ If you're an avid fan of Counter-Strike: Global Offensive and enjoy the thrill o
 
 CSGOPolygon is an innovative online betting platform that caters to fans of CSGO by allowing them to bet on professional match outcomes or engage in classic casino games using virtual game skins. This platform bridges the gap between eSports excitement and casino thrill, making it a unique destination for gamers looking to test their luck and skills.
 
-<h2>Activating the CSGOPolygon Promo Code</h2>.
+<h2>Activating the CSGOPolygon Promo Code</h2>
 
 To take advantage of the promo code "CSGOBETTINGS," follow these simple steps:
 
